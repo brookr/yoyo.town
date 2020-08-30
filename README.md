@@ -10,4 +10,4 @@ Check out the latest Yoyo.Town T-shirt designs... Coming soon!
 
 ### Follow the action
 
-Follow us on [Instagram](https://instagram.com/yoyo.town_)for yoyo videos, artwork, and more!
+Follow us on [Instagram](https://instagram.com/yoyo.town_) for yoyo videos, artwork, and more!
